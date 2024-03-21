@@ -8,4 +8,4 @@ and you don't have the engough time or energy 😢
 or you want to use my JSON based summary on you app 
 _YOU ARE AT THE REIGHT PLACE_
 
-&copy all right for OMAR HAMED
+&copy; all right for OMAR HAMED
